@@ -1,1 +1,0 @@
-# bane-rydland.github.io
